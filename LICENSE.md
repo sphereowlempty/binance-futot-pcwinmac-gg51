@@ -1,4 +1,4 @@
-# 
+# Profissional binance futures bot complementos for Mac OS | Elite binance futures bot complementos for PC Windows. Featuring análise de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
